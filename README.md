@@ -1,2 +1,2 @@
 # HomeWork2
-Homework2 Testing a
+Thread Sleep shesamowmeblad mqonda da damaviwyda washla :)
